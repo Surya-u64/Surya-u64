@@ -15,7 +15,7 @@
 
  📫 How to Reach Me
 
-- 📧 Email: your.email@example.com
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-profile)
-- 🌐 [Portfolio](https://your-portfolio-site.com)
+- 📧 Email: suryaasurya5138t@gmail.com
+- 💼 [LinkedIn](https://www.linkedin.com/in/surya-v-96613830a/)
+- 🌐 [Portfolio](https://suryaportfolio1.framer.website/)
 
